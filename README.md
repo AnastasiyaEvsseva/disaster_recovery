@@ -11,17 +11,14 @@
 
 ![image](https://github.com/AnastasiyaEvsseva/disaster_recovery/assets/151757353/72b36d19-d708-4884-819a-92eb1aea763d)
 
-![image](https://github.com/AnastasiyaEvsseva/disaster_recovery/assets/151757353/1ba9c484-bd28-4cb9-90e6-6ac5441b9aa7)
+![image](https://github.com/AnastasiyaEvsseva/disaster_recovery/assets/151757353/ce736582-4dbb-4643-a33c-9ed3bfa2d511)
 
-![image](https://github.com/AnastasiyaEvsseva/disaster_recovery/assets/151757353/8f1ed18b-8904-48b3-ac2b-19b7585446ef)
+![image](https://github.com/AnastasiyaEvsseva/disaster_recovery/assets/151757353/0b887f0e-690a-4a9d-92f3-ecc977802a54)
 
-![image](https://github.com/AnastasiyaEvsseva/disaster_recovery/assets/151757353/4d11008a-cd5d-4de7-b63e-6d3613fc426e)
+![image](https://github.com/AnastasiyaEvsseva/disaster_recovery/assets/151757353/3550c028-d273-4e7f-8b3b-8b9f7403c4d5)
 
-![image](https://github.com/AnastasiyaEvsseva/disaster_recovery/assets/151757353/700c9014-9d2a-437b-89bd-33486c833aed)
 
-![image](https://github.com/AnastasiyaEvsseva/disaster_recovery/assets/151757353/f59b4aa9-c957-4866-8038-501a0dba202a)
 
-![image](https://github.com/AnastasiyaEvsseva/disaster_recovery/assets/151757353/d55eb42c-109e-4fa1-999d-e89dbbfa524f)
 
 
 
